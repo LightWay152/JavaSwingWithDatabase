@@ -1,0 +1,1 @@
+dung chung db voi bai 31
